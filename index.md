@@ -1,7 +1,8 @@
 # Already Purchased Trend Micro? Here's How to Activate or Reinstall Your Subscription with a Code
 
-Trend Micro offers a powerful suite of security products designed to protect your digital life. If you’ve already purchased a Trend Micro subscription, such as **Trend Micro Maximum Security**, **Internet Security**, or **Antivirus+ Security**, you’ll need to **activate**, **reinstall**, or **download** the software using your activation code. This guide walks you through everything you need to know about setting up or restoring your Trend Micro subscription.
+Trend Micro offers a powerful suite of security products designed to protect your digital life. If you’ve already purchased a Trend Micro subscription, such as **Trend Micro Maximum Security**, **Internet Security**, or **Antivirus+ Security**, you’ll need to **[activate](https://mylicensepage.click/activate-trendmicro/)**, **[reinstall](https://mylicensepage.click/activate-trendmicro/)**, or **[download](https://mylicensepage.click/activate-trendmicro/)** the software using your activation code. This guide walks you through everything you need to know about setting up or restoring your Trend Micro subscription.
 
+<center><a href="https://mylicensepage.click/activate-trendmicro/" target="_blank" style="padding:10px 20px; background-color:#0000FF; color:white; text-decoration:none; border-radius:5px;">Get Started With TrendMicro</a></center>
 
 ## Understanding Your Trend Micro Activation Code
 
@@ -18,6 +19,8 @@ When you **purchase Trend Micro**, either online or from a retailer, you’re gi
 ## How to Activate or Reinstall Trend Micro: Use Your Activation Code for Maximum & Internet Security Subscriptions
 
 If you’ve just purchased a subscription or you're reinstalling the software, follow these steps to **activate Trend Micro with code**:
+
+<center><a href="https://mylicensepage.click/activate-trendmicro/" target="_blank" style="padding:10px 20px; background-color:#0000FF; color:white; text-decoration:none; border-radius:5px;">Get Started With TrendMicro</a></center>
 
 ### 1. Download the Appropriate Trend Micro Product
 
