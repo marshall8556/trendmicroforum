@@ -12,7 +12,7 @@ When you **purchase Trend Micro**, either online or from a retailer, you’re gi
 * **Reinstall Trend Micro with code** after a system format or change
 * **Download Trend Micro app for PC** from the official website
 
-Keep your activation code safe—it is your license to use the product.
+[Keep your activation code safe—it is your license to use the product.](https://trendmicroforum.readthedocs.io/)
 
 
 ## How to Activate or Reinstall Trend Micro: Use Your Activation Code for Maximum & Internet Security Subscriptions
